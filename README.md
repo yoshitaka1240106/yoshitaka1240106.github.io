@@ -1,0 +1,1 @@
+# yoshitaka1240106.github.io
